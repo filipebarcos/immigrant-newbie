@@ -25,7 +25,7 @@ Agora que você tem um SIN, vá até o [_Régie de l'assurance maladie_](maladie
 
 ### Cenas dos próximos capítulos
 
-Agora você quer viver normalmente, e precisará de conta de celular, conta em banco, provavelmente internet de casa, e outros afins. Para tudo isso você precisará "ter crédito" e agora é a ~~dor de cabeça~~ diversão começa. Vou gastar um outro "capítulo" só para esse assunto de crédito no Canadá e no que isso implicará.
+Agora você quer viver normalmente, e precisará de conta de celular, conta em banco, provavelmente internet de casa, e outros afins. Para tudo isso você precisará "ter crédito" e agora é que a ~~dor de cabeça~~ diversão começa. Vou gastar um outro "capítulo" só para esse assunto de crédito no Canadá e no que isso implicará.
 
 [sin-website]: https://www.canada.ca/en/employment-social-development/services/sin.html
 [maladie-website]: http://www.ramq.gouv.qc.ca/en/Pages/home.aspx
